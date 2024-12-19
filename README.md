@@ -1,0 +1,1 @@
+# nurda-story.kz
